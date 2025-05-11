@@ -7,8 +7,15 @@ Obviously, it is called README, so you are reading me now
 
 
 
-https://github.com/user-attachments/assets/b2df6524-9f4b-40fd-b438-9936f86bcd84
+
 
 
 ![New weezer](https://github.com/user-attachments/assets/68649ea3-73d7-443b-8a45-0341c4f1c5b8)
 ![Screenshot_20250207-1203492](https://github.com/user-attachments/assets/c431917f-051c-47b2-9658-f704e12a84c8)
+![IKsRpHk](https://github.com/user-attachments/assets/2ac62795-cb02-462c-be8d-21ab2befc283)
+![36d7867d2efaa3b1aa053fec2c8b824c](https://github.com/user-attachments/assets/d885a14d-03c5-4029-b435-e8e1db8184f9)
+![download](https://github.com/user-attachments/assets/d3fb393f-5307-4c1d-85df-df7bd57de1e0)
+
+
+https://github.com/user-attachments/assets/c4809026-beae-46c0-9de6-311b06faf5c5
+
