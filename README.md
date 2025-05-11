@@ -11,3 +11,4 @@ https://github.com/user-attachments/assets/b2df6524-9f4b-40fd-b438-9936f86bcd84
 
 
 ![New weezer](https://github.com/user-attachments/assets/68649ea3-73d7-443b-8a45-0341c4f1c5b8)
+![Screenshot_20250207-1203492](https://github.com/user-attachments/assets/c431917f-051c-47b2-9658-f704e12a84c8)
