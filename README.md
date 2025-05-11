@@ -4,6 +4,10 @@ https://twitter.com/morithegamer Also Almost all my projects will go public! So 
 ![68747470733a2f2f692e616c6578666c69706e6f74652e6465762f346839336775792e706e67](https://github.com/user-attachments/assets/09b44db5-8a84-46aa-9e30-c1799f291dff)
 
 
+https://github.com/user-attachments/assets/342ff198-38ad-41a7-9c52-938f7395165e
+
+
+
 
 
 
@@ -17,5 +21,5 @@ https://twitter.com/morithegamer Also Almost all my projects will go public! So 
 ![download](https://github.com/user-attachments/assets/d3fb393f-5307-4c1d-85df-df7bd57de1e0)
 
 
-https://github.com/user-attachments/assets/c4809026-beae-46c0-9de6-311b06faf5c5
+
 
