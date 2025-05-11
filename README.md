@@ -1,16 +1,14 @@
-## Hi there 👋
+Obviously, it is called README, so you are reading me now
 
-<!--
-**morithegamer/morithegamer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![68747470733a2f2f692e616c6578666c69706e6f74652e6465762f346839336775792e706e67](https://github.com/user-attachments/assets/09b44db5-8a84-46aa-9e30-c1799f291dff)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+https://github.com/user-attachments/assets/29728d00-cd0e-4451-972b-8a2375170050
+
+
+
+https://github.com/user-attachments/assets/b2df6524-9f4b-40fd-b438-9936f86bcd84
+
+
+![New weezer](https://github.com/user-attachments/assets/68649ea3-73d7-443b-8a45-0341c4f1c5b8)
